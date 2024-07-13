@@ -1,2 +1,2 @@
-<i>I'm sorry, apparently I'm feeling a little psychotic this morning.</i><br><br>
-![9879580_cacc6](https://github.com/user-attachments/assets/cb7c506a-a9d7-4732-b570-927eff3d6aee)
+<i>Hi there! Would you like to sign my petition?</i><br><br>
+![ezgif-1-c91d66b2d1](https://github.com/user-attachments/assets/ecfb144f-1c7c-42fa-beac-55b79689ab89)
